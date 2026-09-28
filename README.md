@@ -1,0 +1,2 @@
+# Part-Time-Income-from-Websites-5-Proven-Ways-to-Earn-Online
+To generate part-time income online, building a powerful website is important for good profits. The idea is driven by advancements in robust e-commerce platforms, AI, automation, etc. True passive income needs effort-based work. It requires 100 to 800 hrs of research, writing, &amp; also setup-before generating returns with minimal upkeep. 
